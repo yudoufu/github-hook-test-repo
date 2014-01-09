@@ -1,1 +1,2 @@
-test repo��ύX����̂ł���B
+test repoを変更するのですよ。
+更に変更するのですよ
